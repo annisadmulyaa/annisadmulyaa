@@ -1,4 +1,4 @@
-👀 Hi, I’m Annisa! I'm just ordinary girl who loves nature
+👀 Hi, I’m Annisa! I'm just ordinary girl who loves acitivity in nature.
 I'm open to feedback on the projects I share ✨
 
 <!---
