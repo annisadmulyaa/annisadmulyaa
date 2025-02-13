@@ -1,4 +1,4 @@
-👀 Hi, I’m Annisa! I want to unlock curiousity about data insight for any ocassional project in real world.
+👀 Hi, I’m Annisa! I'm just ordinary girl who loves nature
 I'm open to feedback on the projects I share ✨
 
 <!---
