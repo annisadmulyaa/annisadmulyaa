@@ -1,5 +1,5 @@
 👀 Hi, I’m Annisa! I'm just ordinary girl who loves acitivity in nature.
-I'm open to feedback on the projects I share ✨
+I'm open to feedback on the projects I share, just dm my linkedln that I drop in profile ✨
 
 <!---
 annisadmulyaa/annisadmulyaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
