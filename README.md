@@ -1,4 +1,4 @@
-👀 Hi, I’m Annisa! I’m interested in business and tech. During my college studies, I took courses in data analytics that unlock my curiousity about data insight for any ocassional in real world.
+👀 Hi, I’m Annisa! I want to unlock curiousity about data insight for any ocassional project in real world.
 I'm open to feedback on the projects I share ✨
 
 <!---
