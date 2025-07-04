@@ -1,4 +1,4 @@
-👀 Hi, I’m Annisa! I'm just ordinary girl who loves activity in nature.
+👀 Hi, I’m Annisa! These are my work and practice project about dashboard creation from several case study. I'm using Excel (Pivot & Slicers) and Power BI to visualization and practice analysis.
 I'm open to feedback on the projects I share, just dm my linkedln that I drop in profile ✨
 
 <!---
